@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/e7ehe3.jpeg)
+![](https://i.pinimg.com/736x/93/1b/3b/931b3b40c39a76407632250ac4980d72.jpg)
 
 hai guys it me lacie  !!!! i'm nawt active here
 
