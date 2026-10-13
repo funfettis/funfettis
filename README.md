@@ -6,7 +6,7 @@ me and my big [brothr](https://github.com/undeadlost)
 
 ![](https://64.media.tumblr.com/c587e85c8ba896a0d57420e49da61648/48e74cc2c5318140-28/s400x600/73dd5704a07041d8bec570b55c7ac6aac64ec435.gifv)
 
-I LOVE LOVE **LOVE** IT!  MY EXCLUSIVE  
+  I LOVE LOVE **LOVE** IT!  MY EXCLUSIVE  
 ROYAL CANTERLOT WEDDING [PLAYSET](https://open.spotify.com/track/5qKkcek0viLcXOtvLFLG5Y?si=50440d07463d4736) !
   
 ![](https://files.catbox.moe/qvara8.gif)
@@ -25,29 +25,21 @@ ROYAL CANTERLOT WEDDING [PLAYSET](https://open.spotify.com/track/5qKkcek0viLcXOt
 <details>
   <summary>INFO ABOUT ME !!!!!!!! </summary>
   
-  HI! i'm lacie and/or clover !! i use she/her or he/him ONLY  
-  (i outright refuse to have they/it ++ used on me because it  
-  feels extremely dehumanizing to my identity, i am not gonna  
-  elaborate !!!) im very mentally unstable & not right in the  
-  head at all if that isnt obvious !!!! i'm usually only on  
-  with my friend(s) or my brother! i don't really have a set  
-  opinion on c+hing you can do it w me if you want but i might  
-  feel awkward. #oops. i consider my identity a very very  
-  sacred thing to me so if you're doubles of any characters  
-  who are an [extreme](https://64.media.tumblr.com/97658d682ce6a83875ecdc82266ba802/6788392c557e7ff1-55/s75x75_c1/3553b3d661f307e0fb25b23962794051f48658db.gifv) part of my identity strictly please  
-  do not interact with me, or i'll block you myself to save time
+  HI! i'm lacie and/or clover !! i use she/him  
+  ONLY (pls respect this !!!) alicorn bunny girl  
+  i love my bffs forever & my partner ! i have  
+  very bad social anxiety pls keep this in mind!  
+  i try to be as nice as possible aswell  
 </details>
 
 <details>
-  <summary>EXTRA STUFF ABT ME !!!!!!!! </summary>
+  <summary>FIND ME IN DA RAVE !!!!!! </summary>
   
-  i have VERY VERY VERY awful social anxiety so i  
-  won't come up to u first or etc .... i consider  
-  myself to be the #1 splits & stat & brandon kin  
-  and i don't really take kindly to "competition"  
-  so pls be aware ... i'm really kind when u get to  
-  know me please dont base ur idea off me from what  
-  you see on ponytown of all things !!!!
+  u can always find me near my friends or spawn,  
+  if i'm sitting alone ur always free 2 interact  
+  i don't mind i'll just be super awkward ! i  
+  might be offtab at times so if i don't reply  
+  just whisper nd i'll come look immediately  
   
 </details>
 
