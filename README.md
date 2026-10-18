@@ -45,5 +45,10 @@ I LOVE MY PARTNER VINNY WE ARE SOULBASKET <img width="20" height="20" alt="image
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=uw7mqr4atrsgab80pmx5z9zug&cover_image=false&theme=default&show_offline=true&background_color=471320&interchange=true&profanity=true&hide_remaster=false&bar_color=fdd3db&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+BRANDON + ONYX = WELCOME 2 BRADARHOOD.  
+PIC IS ME AND MY BIG [BROTHER](https://github.com/undeadlost) SAY HI 2 HIM
+
+<img width="185" height="100" alt="image" src="https://i.pinimg.com/736x/93/1b/3b/931b3b40c39a76407632250ac4980d72.jpg" />
+
 </p>
 <div align="center">
