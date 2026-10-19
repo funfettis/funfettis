@@ -49,8 +49,6 @@ ME OR ANYTHING ALONG THOSE LINES LMK !!!!!
 [rentry](https://rentry.co/queso)    [atabook (SIGN PLS!!!)](https://funfettis.atabook.org)    STREAM DEVI MCCALLION  
 **rentry & atabook may be straining on the eyes pls take caution !!!**
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=uw7mqr4atrsgab80pmx5z9zug&cover_image=false&theme=default&show_offline=true&background_color=471320&interchange=true&profanity=true&hide_remaster=false&bar_color=fdd3db&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
 BRANDON + ONYX = WELCOME 2 BRADARHOOD.  
 PIC IS ME AND MY BIG [BROTHER](https://github.com/undeadlost) SAY HI 2 HIM
 
