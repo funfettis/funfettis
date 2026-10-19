@@ -14,7 +14,12 @@
 ![](https://files.catbox.moe/nqp9ap.png) ![](https://files.catbox.moe/tvvvle.png) ![](https://files.catbox.moe/s8yl1d.png)  
 ![](https://files.catbox.moe/cza3a7.gif)  
 LACIE <img width="20" height="20" alt="image" src="https://files.catbox.moe/ntw63v.gif"> CLOVER !!!!⠀⠀⠀⠀N1 DEVI MCCALLION FAN  
-I LOVE MY PARTNER VINNY WE ARE SOULBASKET <img width="20" height="20" alt="image" src="https://files.catbox.moe/azjhaz.gif">
+I LOVE MY PARTNER VINNY WE ARE SOULBASKET <img width="20" height="20" alt="image" src="https://files.catbox.moe/azjhaz.gif">  
+
+I DO NOT HAVE ANY OTHER ACCOUNTS BESIDES FROM  
+@ENNEAHUMAN AND THIS ONE !!! IF SOMEONE LOOKS  
+SIMILAR TO ANY OF MY PONIES OR IS LARPING BEING  
+ME OR ANYTHING ALONG THOSE LINES LMK !!!!!
 
 <details>
   <summary>INFO ABOUT ME / BYI! !!!!!!!! </summary>
