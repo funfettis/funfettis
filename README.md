@@ -1,8 +1,6 @@
 <div align="center">
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=funfettis&label=bullets%20shot%20at%20regect&labelColor=%23132136&countColor=%23ffffff&style=flat)
-  
-![](https://files.catbox.moe/vwddb3.gif)
 
 
 </div>
