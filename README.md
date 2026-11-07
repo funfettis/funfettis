@@ -1,6 +1,6 @@
 <div align="center">
 
-[![Visitors](https://api.visitorbadge.io/api/visitors?path=funfettis&label=NUTRIENTS%20FOR%20ME&labelColor=%23fecfdb&countColor=%23f6f7ef&style=plastic&labelStyle=none)](https://visitorbadge.io/status?path=funfettis)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=funfettis&label=bullets%20shot%20at%20regect&labelColor=%23132136&countColor=%23ffffff&style=flat)
   
 ![](https://files.catbox.moe/vwddb3.gif)
 
@@ -11,46 +11,43 @@
 </p>
 <div align="center">
 
-![](https://files.catbox.moe/nqp9ap.png) ![](https://files.catbox.moe/tvvvle.png) ![](https://files.catbox.moe/s8yl1d.png)  
-![](https://files.catbox.moe/cza3a7.gif)  
-LACIE <img width="20" height="20" alt="image" src="https://files.catbox.moe/ntw63v.gif"> CLOVER !!!!⠀⠀⠀⠀N1 DEVI MCCALLION FAN  
-I LOVE MY PARTNER VINNY WE ARE SOULBASKET <img width="20" height="20" alt="image" src="https://files.catbox.moe/azjhaz.gif">  
+who is that girl i met amongst the falling cherry blossoms
 
-I DO NOT HAVE ANY OTHER ACCOUNTS BESIDES FROM  
-@ENNEAHUMAN AND THIS ONE !!! IF SOMEONE LOOKS  
-SIMILAR TO ANY OF MY PONIES OR IS LARPING BEING  
-ME OR ANYTHING ALONG THOSE LINES LMK !!!!!
+![](https://file.garden/auE4_ekMep628T5u/jsakdas.png)
+
+my only other account is @enneahuman if someone looks  
+similar to me & neither those githubs are tagged pls let me  
+know thx !!! i'm also rarely active on here so sorryzzzz
 
 <details>
-  <summary>INFO ABOUT ME / BYI! !!!!!!!! </summary>
+  <summary>before you int </summary>
   
-  HI! i'm lacie and/or clover !! i use she/him  
-  ONLY (pls respect this !!!) alicorn bunny girl  
-  i love my bffs forever & my partner ! i have  
-  very bad social anxiety pls keep this in mind!  
-  i try to be as nice as possible and patient too   
-  i have VERY huge moodswings i may be Super Super  
-  energetic at one point then draine d the NEXT!!!  
-  PLS INT WITH CAUTION AND CARE ALWASY !!!!!!!!
+u can call me lacie or lottie i dont rlly mind  
+i've had very bad paranoia as of late so i am  
+very worried & paranoid about everything i do  
+so pls int with caution at all times thx , ask for  
+my discord if u want but i'm bad at texting 1st  
+and i have horrible trust issues. i use she/her  
+and he/him i do not like they/them or it/its  
+being used on me 4 personal reasons
 </details>
 
 <details>
-  <summary>FIND ME IN UR DREAMS !!!!! </summary>
+  <summary>where to find me </summary>
   
-  u can always find me near my friends or spawn,  
-  if i'm sitting alone ur always free 2 interact  
-  i don't mind i'll just be super awkward ! i  
-  might be offtab at times so if i don't reply  
-  just whisper nd i'll come look immediately  
-  IDC about C+H I DON TMIND EITHER> THASKNSS AYA
+majority of the time i'll be with my friends i  
+dont care about c+h either feel free to but i'll  
+probably be semi awkward. i'm extremely antisocial  
+and just overall have issues with talking to anyone  
+i'm not close to currently, i'm also not searching  
+for friends either right now sorry
   
 </details>
 
-[rentry](https://rentry.co/queso)    [atabook (SIGN PLS!!!)](https://funfettis.atabook.org)    STREAM DEVI MCCALLION  
-**rentry & atabook may be straining on the eyes pls take caution !!!**
+[rentry](https://rentry.co/queso)    [atabook](https://funfettis.atabook.org)  
+**both may be eyestraining thx**
 
-BRANDON + ONYX = WELCOME 2 BRADARHOOD.  
-PIC IS ME AND MY BIG [BROTHER](https://github.com/undeadlost) SAY HI 2 HIM
+me & my [big brother](https://github.com/undeadlost) !!!
 
 <img width="185" height="100" alt="image" src="https://i.pinimg.com/736x/93/1b/3b/931b3b40c39a76407632250ac4980d72.jpg" />
 
