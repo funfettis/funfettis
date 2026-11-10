@@ -45,7 +45,8 @@ for friends either right now sorry
 [rentry](https://rentry.co/queso)    [atabook](https://funfettis.atabook.org)  
 **both may be eyestraining thx**
 
-me & my [big brother](https://github.com/undeadlost) !!!
+me & my [big brother](https://github.com/undeadlost) !!!  
+[sign dis gubbies ata LOL.](https://undeadlost.atabook.org/?page=1)
 
 <img width="185" height="100" alt="image" src="https://i.pinimg.com/736x/93/1b/3b/931b3b40c39a76407632250ac4980d72.jpg" />
 
