@@ -42,6 +42,24 @@ for friends either right now sorry
   
 </details>
 
+<details>
+  <summary>do not interact </summary>
+
+i kind of have to make this considering the people  
+on this game dear god dni if you willingly and  
+knowingly associate yourself with groomers or  
+pedophiles or anything like that
+
+and racists yadayda if u think cracker is racist or  
+a slur dni too because it isnt stop trying to manipulate  
+and delusion yourself into thinking you can experience  
+racism because you obviously cant as a white person
+
+also (obviously) if u have issues with my boyfriend  
+or my friends dni i think thats pretty obvious
+
+</details>
+
 [rentry](https://rentry.co/queso)    [atabook](https://funfettis.atabook.org)  
 **both may be eyestraining thx**
 
