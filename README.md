@@ -43,6 +43,8 @@ for friends either right now sorry
 </details>
 
 
+![](https://files.catbox.moe/5r7rfi.png)
+
 [rentry](https://rentry.co/queso)    [atabook](https://funfettis.atabook.org)  
 **rentry may be eyestraining thx**
 
