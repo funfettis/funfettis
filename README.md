@@ -42,9 +42,9 @@ for friends either right now sorry
   
 </details>
 
-
-![](https://files.catbox.moe/5r7rfi.png)
-
+[<img width="270" height="55" alt="Screenshot 2026-11-11 at 3 34 56 PM" src="https://github.com/user-attachments/assets/82531cfb-6e9f-455d-9a51-0b66cfc6a810" />](https://github.com/pts-r0ttingeyes)  
+click 2 be redirected ^
+ 
 [rentry](https://rentry.co/queso)    [atabook](https://funfettis.atabook.org)  
 **rentry may be eyestraining thx**
 
@@ -52,6 +52,7 @@ me & my [big brother](https://github.com/undeadlost) !!!
 [sign dis gubbies ata LOL.](https://undeadlost.atabook.org/?page=1)
 
 <img width="185" height="100" alt="image" src="https://i.pinimg.com/736x/93/1b/3b/931b3b40c39a76407632250ac4980d72.jpg" />
+
 
 </p>
 <div align="center">
