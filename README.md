@@ -1,6 +1,6 @@
 <div align="center">
 
-![Visitors](https://api.visitorbadge.io/api/visitors?path=funfettis&label=bullets%20shot%20at%20regect&labelColor=%23132136&countColor=%23ffffff&style=flat)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=funfettis&label=Diodessa%20Nutrients&labelColor=%23132136&countColor=%23132136&style=plastic)
 
 
 </div>
@@ -9,13 +9,15 @@
 </p>
 <div align="center">
 
-who is that girl i met amongst the falling cherry blossoms
+love us together an eater i need her
 
-![](https://file.garden/auE4_ekMep628T5u/jsakdas.png)
+![](https://files.catbox.moe/hwb2sm.png)
 
 my only other account is @enneahuman if someone looks  
-similar to me & neither those githubs are tagged pls let me  
-know thx !!! i'm also rarely active on here so sorryzzzz
+similar to me & neither those githubs are tagged lmk  
+i am not active on ponytown at all sorry  
+
+i'm dessa if she was a teenage girl #truth
 
 <details>
   <summary>before you int </summary>
@@ -38,7 +40,8 @@ dont care about c+h either feel free to but i'll
 probably be semi awkward. i'm extremely antisocial  
 and just overall have issues with talking to anyone  
 i'm not close to currently, i'm also not searching  
-for friends either right now sorry
+for friends either right now sorry  i'm also usually  
+at spawn or under the tree there.  idk! lol!
   
 </details>
 
