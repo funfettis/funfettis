@@ -2,6 +2,8 @@
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=funfettis&label=Diodessa%20Nutrients&labelColor=%23132136&countColor=%23132136&style=plastic)
 
+![](https://file.garden/auE4_ekMep628T5u/image_2026-11-26_073805847.png)
+
 
 </div>
 <p align="center">
